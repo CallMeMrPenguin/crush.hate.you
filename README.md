@@ -1,1 +1,1 @@
-# crush.hate.you
+# crush.github.io
